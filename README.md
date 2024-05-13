@@ -1,1 +1,1 @@
-- 👋 Hey, it's Camille.
+- 👋 Hey
